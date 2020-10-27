@@ -1,1 +1,0 @@
-# No New Ideas Yet
